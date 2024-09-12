@@ -1,0 +1,1 @@
+# explorando-recursos-ia-generativa
